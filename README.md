@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @AjisaiMirai
-- 👀 I’m interested in lewd gposes uwu
+EXCEPTION_ACCESS_VIOLATION connoisseur
